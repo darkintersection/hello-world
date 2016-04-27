@@ -1,2 +1,3 @@
 # hello-world
 our repository
+Artist and Digital Content Creator. Video, Lighting and Laser Operator for Live Shows & Video Content Management & Design. Experience with hundreds of clients on local, regional and national levels. Digital Film / Video production, post production, video compositing, CG animation, as well as Producing and Directing for advertising and marketing campaigns. Everything from original planning and pre-production, above the line and below the line production and direction during all aspects of new media design and development , post-production, distribution, plus traditional and viral marketing.
